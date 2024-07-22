@@ -1,0 +1,1 @@
+# ig-scalping-shortcut
